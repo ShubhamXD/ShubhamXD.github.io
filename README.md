@@ -1,2 +1,2 @@
-# Have a Faith
+# Have Faith
 We'll be live <i>soon</i>....
